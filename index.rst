@@ -17,7 +17,7 @@
 How to get free accounts for Minecraft Premium in 2021?
 
 
-Once the site opens, enter your toomics username/email address and continue
+Once the site opens, enter your username/email address and continue
 
 Now, you tap on "Allow" when the system asks permission to download and install the app from other sources.
 
@@ -27,11 +27,11 @@ As soon as you open the application, it will show you that you will earn unlimit
 
 
 
-∂Minecraft Premium 2021 Generator No Human Verification or Surveys∂
+¬∂Minecraft Premium 2021 Generator No Human Verification or Surveys¬∂
 
-Minecraft is not just another video game; it is much more than that. It is an adventure game, also known as a ìsandboxî video game, which is created by a Swedish developer Markus Persson and Mojan Studios. The video game was released in the year 2011, and since then its popularity is rising exponentially.
+Minecraft is not just another video game; it is much more than that. It is an adventure game, also known as a ‚Äúsandbox‚Äù video game, which is created by a Swedish developer Markus Persson and Mojan Studios. The video game was released in the year 2011, and since then its popularity is rising exponentially.
 
-Minecraft allows the players to mine several blocks that they can use to build 3D constructions the way they want. You get so many play modes ñ combat mode, exploration mode, building mode, or a combination of different modes.
+Minecraft allows the players to mine several blocks that they can use to build 3D constructions the way they want. You get so many play modes ‚Äì combat mode, exploration mode, building mode, or a combination of different modes.
 
 You can demonstrate your creativity while exploring, gathering resources, crafting those cubes, and combating. Verge report says that Minecraft has already sold 200 million copies and has over 126 million active players.
 
@@ -39,4 +39,4 @@ Enjoying Minecraft on your device requires a dedicated and secure server so you 
 
 Hence, it is better to go for a specialized Minecraft server hosting platform instead of building by yourself.
 
-Donít just go by the words, read on to find why.
+Don‚Äôt just go by the words, read on to find why.
